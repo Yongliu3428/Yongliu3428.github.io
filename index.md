@@ -2,7 +2,7 @@
 ### 11 DXXXXXX, Winnpeg, MB, R3Y0L1
 ### 431-xxx-1278
 
-![Yong Liu](yong-liu.jpg)
+![Yong Liu](yongliu.jpg)
 
   Highly motivated and independent agriculture student prepared to put all the 
 energy into a new career. Possess strong written and oral communication skills with the 
